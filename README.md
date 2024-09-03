@@ -6,7 +6,7 @@ Bilingual QA Engineer with 4 years of experience in the area of quality for manu
 
 As you can see my last years have been sorrounded by Quality so, I consider myself a person who likes things well done. I have in my back 4 years working as a Quality Engineer for manufacturing Industry :hammer::wrench: and according to my passion for knowledge, I´m aware that new Technologies :satellite::computer: need Quality so I´am 100%:battery: sure it is time to upgrade my career toward IT :computer: to be in the very current time and provide my expertise to those companies that need it.
 
-Additionally, I want to tell you that I am human. I like reading, I also like to study and I think it is one of my passions so you will see me constantly studying something new:school_satchel::school_satchel::school_satchel::book::book::book:. I speak English:uk: and Spanish:es: to get by in daily and professional life but I have also learned a little about other languages ​​such as Portuguese, French:fr: and German:de:.
+Additionally, I want to tell you that I am human. I like reading, I also like to study and I think it is one of my passions so you will see me constantly studying something new :school_satchel::school_satchel: :school_satchel: :book::book::book: . I speak English:uk: and Spanish:es: to get by in daily and professional life but I have also learned a little about other languages ​​such as Portuguese, French:fr: and German:de:.
 
 I am always open to new opportunities and connections:v::v:. Do not hesitate to contact me if both parties can provide value. :punch:
  :email: medu2647@gmail.com
