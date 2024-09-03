@@ -8,6 +8,6 @@ As you can see my last years have been sorrounded by Quality so, I consider myse
 
 Additionally, I want to tell you that I am human. I like reading, I also like to study and I think it is one of my passions so you will see me constantly studying something new :school_satchel::school_satchel: :school_satchel: :book::book::book: . I speak English:uk: and Spanish:es: to get by in daily and professional life but I have also learned a little about other languages ​​such as Portuguese, French:fr: and German:de:.
 
-I am always open to new opportunities and connections:v::v:. Do not hesitate to contact me if both parties can provide value. :punch:
+I am always open to new opportunities and connections :v: :v: . Do not hesitate to contact me if both parties can provide value.  :punch:
  :email: medu2647@gmail.com
 
